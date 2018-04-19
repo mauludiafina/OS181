@@ -8,3 +8,9 @@ ZCZC W02 selesai.
 ZCZC W03 done.
 
 ZCZC W04 sudah.
+
+ZCZC W05 done.
+
+ZCZC W06 sudah dicoba.
+
+ZCZC W07 sudah.
