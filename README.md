@@ -14,3 +14,9 @@ ZCZC W05 done.
 ZCZC W06 sudah dicoba.
 
 ZCZC W07 sudah.
+
+ZCZC W08 sudah.
+
+ZCZC W09 done.
+
+ZCZC W010 sudah dicoba.
